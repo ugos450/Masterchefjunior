@@ -1,10 +1,10 @@
-1 cup (240ml) whole milk, warmed to about 110°F (43°C)*
-1 Tablespoon active dry yeast*
-1/3 cup (65g) granulated sugar
-2 large eggs
-6 Tablespoons (86g) unsalted butter, melted and slightly cooled
-1 teaspoon pure vanilla extract
-1/4 teaspoon ground nutmeg
-1/2 teaspoon salt
-4 cups (490g) all-purpose flour (spoon & leveled), plus more as needed
-1 – 2 quarts vegetable oil*
+-1 cup (240ml) whole milk, warmed to about 110°F (43°C)*
+-1 Tablespoon active dry yeast*
+-1/3 cup (65g) granulated sugar
+-2 large eggs
+-6 Tablespoons (86g) unsalted butter, melted and slightly cooled
+-1 teaspoon pure vanilla extract
+-1/4 teaspoon ground nutmeg
+-1/2 teaspoon salt
+-4 cups (490g) all-purpose flour (spoon & leveled), plus more as needed
+-1 – 2 quarts vegetable oil*
